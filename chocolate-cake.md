@@ -5,7 +5,7 @@ For 6 persons
 ### Ingredients :
 
 * 200g dark chocolate
-* 100g butter
+* 120g butter
 * 3 eggs
 * 50g flour
 * 100g granulated sugar

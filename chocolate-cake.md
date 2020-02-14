@@ -8,7 +8,7 @@ For 6 persons
 * 100g butter
 * 3 eggs
 * 50g flour
-* 100g granulated sugar
+* 120g granulated sugar
 
 ### Recipe :
 

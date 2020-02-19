@@ -1,14 +1,14 @@
 # Chocolate Cake
 
-For 6 persons
+For 8 persons
 
 ### Ingredients :
 
-* 200g dark chocolate
-* 100g butter
-* 3 eggs
-* 50g flour
-* 100g granulated sugar
+* 260g dark chocolate
+* 130g butter
+* 4 eggs
+* 65g flour
+* 130g granulated sugar
 
 ### Recipe :
 
